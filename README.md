@@ -1,0 +1,1 @@
+# Rinda-Ambarwati_Install-Almalinux_Prak.Sistem-Operasi
